@@ -1,2 +1,1 @@
-# EUijinn
-### im jin 
+### imjin
